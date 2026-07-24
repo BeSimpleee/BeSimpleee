@@ -5,5 +5,5 @@ I mainly work on the **networking** aspects of tech although I am quite good at 
 
 You can find me near the fridge or down below:
 
-[LinkedIn](www.linkedin.com/in/andrewn229)
+[LinkedIn](https://www.linkedin.com/in/andrewn229)
 
